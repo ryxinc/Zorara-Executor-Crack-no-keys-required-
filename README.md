@@ -3,6 +3,6 @@ THIS IS A ZORARA CRACK ( NO KEY REQUIRED )
 
 **HOW TO SETUP**
 
-1.extract the .rar /n
+1.extract the .rar 
 2.run the ZoraraUI.exe
 3.enjoy 
